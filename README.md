@@ -18,7 +18,7 @@ I bring a **positive attitude** and a **critical thinking mindset** to every pro
 ## 🎮 **Beyond Work**  
 When I'm not coding or analyzing data, you'll find me:  
 - Following my favorite sports 🏏⚽ as a sports enthusiast.  
-- Playing the piano 🎹 or singigng 🎵 to unwind.  
+- Playing the piano 🎹 or singing 🎵 to unwind.  
 - Gaming 🎮 and exploring immersive worlds.  
 
 ---
